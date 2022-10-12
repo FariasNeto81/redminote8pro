@@ -1,0 +1,2 @@
+# redminote8pro
+Miui
